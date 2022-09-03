@@ -11,4 +11,4 @@ Focus on providing adhesive and film application materials products and solution
 
 Become a domestic leader in the bonding and protection of high-end materials for semiconductors and electronic products in China. The company is a key introduction project in Guixi City, Jiangxi Province, and has been invested by the State-owned Assets Supervision and Administration Commission.
 
-Source: (EPOXYADHESIVE)[https://www.epoxyadhesiveglue.com/]
+Source: [EPOXYADHESIVE](https://www.epoxyadhesiveglue.com/)
